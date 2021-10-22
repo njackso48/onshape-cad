@@ -6,7 +6,7 @@
 
 ### Evidence
 
-	[onshape link](https://cvilleschools.onshape.com/documents/85be964de4a4f8ef7990b1ff/w/2371c3664e6f85e65acc10cb/e/f94c14658b4893e6b29d311e)
+[onshape link](https://cvilleschools.onshape.com/documents/85be964de4a4f8ef7990b1ff/w/2371c3664e6f85e65acc10cb/e/f94c14658b4893e6b29d311e)
 
 ### Image
 
